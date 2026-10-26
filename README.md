@@ -17,30 +17,28 @@
 ## 三 、直接上图
 
 1. 用AI直接生成文章![image-20260203161410847](./image-20260203161410847.png)
-
 2. AI内容直接检测朱雀AI率, 100%全红![image-20260203161540794](./image-20260203161540794.png)
-
 3. 第一次免费降AI率后效果图
 
    ![image-20260203162208641](./image-20260203162208641.png)
 
    ![image-20260203162038288](./image-20260203162038288.png)
-
 4. 第二次使用降AI工具后效果
 
    ![image-20260203162707496](./image-20260203162707496.png)
 
 ## 四 、在线体验地址
 
-https://admins.taoxiangyoushu.com/#/register?code=e87IbsW8
+<https://admins.taoxiangyoushu.com/#/register?code=e5hlRLeu>
 
 ## 五、扫码体验
 
-![code_e87IbsW8](./code_e87IbsW8.png)
+![code\_e87IbsW8](./code_e87IbsW8.png)
 
 ## 六、 使用教程
 
 ![image-20260203180138539](./image-20260203180138539.png)
 
-* 平台操作文档: https://taoxiang.feishu.cn/wiki/YDjrw750WiRvghkmdh9cPyENnld?from=from_copylink
+- 操作文档: <https://taoxiang.feishu.cn/wiki/HwwfwaCwmiJFdTkx9MqcNWYenYN?from=from_copylink>
+- 操作文档: <https://taoxiang.feishu.cn/wiki/HwwfwaCwmiJFdTkx9MqcNWYenYN?from=from_copylink>
 
