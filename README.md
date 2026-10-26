@@ -42,3 +42,8 @@
 - 副业介绍: <https://taoxiang.feishu.cn/wiki/HwwfwaCwmiJFdTkx9MqcNWYenYN?from=from_copylink>
 - 操作文档: <https://taoxiang.feishu.cn/wiki/Uaf0wALDpivJqJk8u1DcjyWKnhf?from=from_copylink>
 
+## 七、联系我们(请在微信备注: 合作合伙人)
+
+- 微信: kelelw520
+- 联系客服可以领取60天平台SVIP兑换码
+
